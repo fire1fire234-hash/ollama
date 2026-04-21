@@ -1,0 +1,1 @@
+"Découvrez Votre Pays" est une plateforme éducative interactive dédiée à la géographie tunisienne, conçue pour les jeunes apprenants. Grâce à une approche gamifiée inspirée du scoutisme, les enfants explorent la Tunisie tout en accumulant des points et en progressant par niveaux. Un outil pédagogique moderne, engageant et patriotique.
